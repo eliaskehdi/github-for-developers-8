@@ -1,0 +1,4 @@
+- [ ] Elias Kehdi
+- [ ] Lebanon
+- [ ] Steak with a side of potatoes and salad
+- [ ] Soccer
